@@ -26,7 +26,7 @@ CLICK [THIS](https://arab.org/click-to-help/palestine)!
 Things I like ![image](https://github.com/user-attachments/assets/2272fd85-817b-4ca9-aebf-46ad76009ecf)
 
 
-![image](https://github.com/user-attachments/assets/7655e64e-363b-41fb-98c8-140ebdaef331) ⠀Games & Others ⠀Postal , Baldurs gate 3 , Splitgate , Hatred , Ultrakill SouthPark TSoT, CoD , Dead by daylight , Resident Evil , Sally Face , Mortal Kombat , minecraft , Stardew , OW , LoL , Alice in Wonderland , [Gotham](https://www.imdb.com/title/tt3749900/) , Metalocalypse , Castlevania , Our flag means death , splatter films , The Devils Carnival, The Devils Rejects
+![image](https://github.com/user-attachments/assets/7655e64e-363b-41fb-98c8-140ebdaef331) ⠀Games & Others ⠀lies of pinocchio , Postal , Baldurs gate 3 , Splitgate , Hatred , Ultrakill SouthPark TSoT, CoD , Dead by daylight , Resident Evil , Sally Face , Mortal Kombat , minecraft , Stardew , OW , LoL , Alice in Wonderland , [Gotham](https://www.imdb.com/title/tt3749900/) , Metalocalypse , Castlevania , Our flag means death , splatter films , The Devils Carnival, The Devils Rejects
 
 ![image](https://github.com/user-attachments/assets/39f9536b-c442-4a16-9ed2-c61abbc07f23) ⠀Musik ⠀Curta'n wall , Emilie Autumn , MACABRE , Horrorpops , Horses Without Makeup , Dethklok , Guttural Slug , Car Seat Headrest , Skinless , Nurzery [Rhymes] , The Dead South , type o negative , Forgotten Ruin , Cancer , Nachzehrer , Carcass , Negative XP , Bad Religion , Bloodhound Gang , Synestia , JILUKA , Koffin Kats , Xion , Rob Zombie , Hail Darkness , Plastic Tree , Sepultura , Suicidal Tendencies , Black Flag , Bethlehem , Gaylord , Dio , satyricon , dimmu borgir , burzum
 
