@@ -1,19 +1,23 @@
-![image](https://github.com/user-attachments/assets/c2553a03-e662-41b0-ac87-216699ab07c3)
-![](https://files.catbox.moe/s6t655.png) ![image](https://github.com/user-attachments/assets/56f434cc-bf13-4347-99f0-f0e6ddb8f168)
+![image](https://github.com/user-attachments/assets/c127f483-21bb-48af-a53c-4a9dbf80d8ab) ![](https://files.catbox.moe/s6t655.png) ![image](https://github.com/user-attachments/assets/63cffcb4-c4bb-46da-b833-d9fd87918c5f)
 
 
 
 
-![image](https://github.com/user-attachments/assets/260ba0a6-0243-4d83-8662-b0c2a859c8c9)  Call me Hattie or come up with something!
+![image](https://github.com/user-attachments/assets/086b11c0-f216-42ff-adcd-905d4da6d179)
+  Call me Hattie or come up with something!
 
-![image](https://github.com/user-attachments/assets/54e530da-26a6-4345-82ce-52f3abfa7aa0) Feel free to interact at anytime
+![image](https://github.com/user-attachments/assets/be408421-313a-440e-ad92-0a6265b1accf)
+ Feel free to interact at anytime
 
-![image](https://github.com/user-attachments/assets/260ba0a6-0243-4d83-8662-b0c2a859c8c9) I usually sit close to spawn or in the LoL/arcane area
+![image](https://github.com/user-attachments/assets/086b11c0-f216-42ff-adcd-905d4da6d179) I usually sit close to spawn or in the LoL/arcane area
 
 
 sign my [ata](https://dungeonz.atabook.org)! ![image](https://github.com/user-attachments/assets/801efe2d-ce80-40c3-81db-354eb6ebce40)
 
 CLICK [THIS](https://arab.org/click-to-help/palestine)!
+
+![image](https://github.com/user-attachments/assets/e445df0c-a7d7-4f11-bbd5-bd1b149eafd1) 
+
 
 
 ![image](https://github.com/user-attachments/assets/d79cbc30-e37d-4128-82d7-ba13ed9bae36)
